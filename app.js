@@ -1,0 +1,1 @@
+<iframe src="https://giphy.com/embed/ImCDGbzDa4Tdu" width="480" height="270" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/adventure-time-gif-ImCDGbzDa4Tdu">via GIPHY</a></p>
